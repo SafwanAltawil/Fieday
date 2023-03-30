@@ -1,1 +1,1 @@
-# Fieday
+# Friday
